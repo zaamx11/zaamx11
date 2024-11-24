@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @zaamx11
+- 👀 I’m interested in football
+- 🌱 I’m currently learning volleyball 
+- 💞️ I’m looking for a girl 
+- 📫 How to reach me s3xorcist_. is my discord
+- 😄 Pronouns: he/him/only hers
+- ⚡ Fun fact: i am boring 
+- i wanna get loved
+- do anything u want with me
